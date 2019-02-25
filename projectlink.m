@@ -1,0 +1,1 @@
+https://www.slideshare.net/copo7475/inventory-management-system-16598132
